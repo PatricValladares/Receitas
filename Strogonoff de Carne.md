@@ -1,0 +1,22 @@
+# Strogonoff de Carne 
+
+## Ingedientes
+
+- 1 Kg de carne de gado picada
+- 1 tablete de caldo de galinha
+- 3 colheres de sopa de óleo
+- 2 latas de creme de leite sem soro
+- 1/2 sachê de molho de tomate
+- 2 colheres de sopa de ketchup
+- 2 colheres de sopa de mostarda
+- Batata palha e arroz branco para acompanhar
+
+
+
+## Loren Ipsun
+
+
+
+consectetur adipiscing elit. In quis dictum  nisi. Pellentesque ornare tortor diam, rhoncus vestibulum orci pretium  eget. Vivamus ullamcorper at eros vel elementum. Suspendisse dapibus  consectetur ullamcorper. Nulla maximus quam ac urna hendrerit congue.  Pellentesque nec suscipit mauris, quis pharetra sem. Suspendisse  ultricies ac mauris vitae pellentesque. Nam pharetra dui vel pretium  elementum. Orci varius natoque penatibus et magnis dis parturient  montes, nascetur ridiculus mus. Donec tincidunt neque tellus, id  sagittis nisl iaculis id. Sed faucibus dui sed faucibus semper. Nunc  aliquam, magna in fringilla dapibus, urna velit rutrum leo, sit amet  faucibus tellus magna eu felis. Aliquam sed ante molestie, varius justo  quis, consectetur urna. Fusce consequat turpis in ante ornare rutrum.  Etiam eros ante, varius sit amet nunc eget, condimentum malesuada justo. Quisque mauris ante, tempor non est sed, iaculis blandit quam.
+
+Duis quis ex ut augue vestibulum pellentesque. Sed facilisis neque id  facilisis dapibus. Vestibulum et vehicula elit. Pellentesque habitant  morbi tristique senectus et netus et malesuada fames ac turpis egestas.  Donec blandit tortor nibh, eu fermentum erat ullamcorper nec. Quisque  placerat tincidunt dui facilisis venenatis. Nullam lacinia cursus  hendrerit. Nunc accumsan lorem vehicula ullamcorper tristique.  Pellentesque habitant morbi tristique senectus et netus et malesuada  fames ac turpis egestas. Duis vel dolor congue, porttitor nisl quis,  scelerisque enim. Etiam commodo erat orci, nec rutrum lectus feugiat  eget. Nam pretium sapien ut mi pretium gravida. Nam eu rutrum ex.  Phasellus elementum risus nec libero vestibulum, id volutpat magna  tristique. Morbi facilisis tellus hendrerit turpis vestibulum gravida.  Ut bibendum enim in ligula molestie consectetur sed sit amet libero.
